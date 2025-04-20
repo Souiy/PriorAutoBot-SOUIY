@@ -24,6 +24,8 @@ https://guild.xyz/prior-protocol-a7e79a
 
 ➖ Complete  all task
 
+➖ KUNCI JAWABAN PRIOR ACADEMY https://acesse.one/GWZ6Z
+
 ➖ Mint The NFT , Mint Price 0.00202 ETH Base ( $3.7 )
 
 ➖ Claim Role On Discord (https://discord.gg/Z5kySdUM)
