@@ -2,7 +2,7 @@
 ## AUTO SWAP & CLAIM FAUCET PRIOR TESTNET BY *SOUIY*
 
 (Node & Testnet),
-PRIOR INCENTIVE TESTNET V1
+PRIOR INCENTIVE TESTNET V2
 
 ➡ Claim Faucet : https://testnetpriorprotocol.xyz/faucet
 
